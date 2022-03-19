@@ -1,0 +1,1 @@
+# Nova Island Calculator is a fan website for Nova Island. These materials are unofficial fan content permitted under the Thirteen Games, LLC Fan Content Terms of Use, which is available at https://novaisland.com/fan-content-terms-of-use. Portions of these materials may contain the proprietary materials of Thirteen Games, LLC.
